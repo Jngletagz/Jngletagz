@@ -1,18 +1,19 @@
-- 👋 Hi, I’m @Jngletagz
-- 👀 I’m interested in ...
-_Customer support
-_ReverseEngineering
-_Script 
-_CyberSecurity
-_Android
+- Yo 
+Whats up world🌏I’m @Jngletagz 🤙🏻✌🏻
+-✅💯I’m interested in ...
+Customer support
+ReverseEngineering
+Script 
+CyberSecurity
+Android
 - 🌱 I’m currently learning ...
 Ethical Hacking
 Software Tech
 Web design
 Coding
-- 💞️ I’m looking to collaborate on ...
+- 💲🖥I’m looking to collaborate on ...
 All educational and beneficial tips programs etc
-- 📫 How to reach me ...
+- 📫 📞How to reach me ...
 Via Gmail-Jngletagz4130@gmail.com
 @Jridesdolphins on Snap
 
